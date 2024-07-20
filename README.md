@@ -1,6 +1,7 @@
-# clubebgifc
+# Clubebgifc
 ## Encontro todas as terças das 12h às 13h45 - Laboratório B3
-* **[Clique aqui para entrar em nosso grupo de whatsApp](https://chat.whatsapp.com/FYUFXPp98CGCd0Og8Yr4WG)** *
+* **[Clique aqui para entrar em nosso grupo de whatsApp](https://chat.whatsapp.com/FYUFXPp98CGCd0Og8Yr4WG)**
+* **[Instagrm do Projeto](https://www.instagram.com/clubebgifc/)**
 
 
 # ÍNDICE DE JOGOS

@@ -1,6 +1,9 @@
-- 👋 Hi, I’m @clubebgifc
+# clubebgifc
+## Encontro todas as terças das 12h às 13h45 - Laboratório B3
+* **[Clique aqui para entrar em nosso grupo de whatsApp](https://chat.whatsapp.com/FYUFXPp98CGCd0Og8Yr4WG)** *
 
-# ÍNDICE 
+
+# ÍNDICE DE JOGOS
 1. [SÓ UMA](#SÓ-UMA)
 2. [DIXIT](#DIXIT)
 3. [SET](#SET)

@@ -1,8 +1,8 @@
 # Clubebgifc
-## Encontro todas as terças das 12h às 13h45 - Laboratório B3
+## Encontro todas as quartas das 11:30 às 13:30 - Biblioteca
 * **[Clique aqui para entrar em nosso grupo de whatsApp](https://chat.whatsapp.com/FYUFXPp98CGCd0Og8Yr4WG)**
-* **[Instagrm do Projeto](https://www.instagram.com/clubebgifc/)**
-
+* **[Instagram do Projeto](https://www.instagram.com/clubebgifc/)**
+* **[Cards](#CARDS)**
 
 # ÍNDICE DE JOGOS
 1. [SÓ UMA](#SÓ-UMA)
@@ -88,3 +88,6 @@ Dixit é um premiado jogo de tabuleiro que combina arte, imaginação e comunica
 #### FIM DA PARTIDA
 O jogo termina quando o baralho acabar e não houver mais nenhum SET possível.
 Ganha quem tiver mais pontos.
+
+## CARDS
+### TRIO CARD: [Acesse Aqui!](https://drive.google.com/file/d/1YiUZ0ltw8ajCZTORnfEdyXIecS769Wu9/view?usp=drive_link)

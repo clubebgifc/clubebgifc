@@ -91,3 +91,7 @@ Ganha quem tiver mais pontos.
 
 ## CARDS
 ### TRIO CARD: [Acesse Aqui!](https://drive.google.com/file/d/1YiUZ0ltw8ajCZTORnfEdyXIecS769Wu9/view?usp=drive_link)
+
+### SPLENDOR CARD: [Acesse Aqui!](https://drive.google.com/file/d/1f2Vl-XQAZzD7vp-bZvllVZ2-Cdo5eB-s/view?usp=drive_link)
+
+### TICKET TO RIDE SAN FRANCISCO CARD: [Acesse Aqui!](https://drive.google.com/file/d/1kzvdOsI1gY1d8RljcDl1Qc3xV38eNVAq/view?usp=sharing)

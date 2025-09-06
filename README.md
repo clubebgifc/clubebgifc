@@ -95,3 +95,4 @@ Ganha quem tiver mais pontos.
 ### SPLENDOR CARD: [Acesse Aqui!](https://drive.google.com/file/d/1f2Vl-XQAZzD7vp-bZvllVZ2-Cdo5eB-s/view?usp=drive_link)
 
 ### TICKET TO RIDE SAN FRANCISCO CARD: [Acesse Aqui!](https://drive.google.com/file/d/1kzvdOsI1gY1d8RljcDl1Qc3xV38eNVAq/view?usp=sharing)
+### AZUL CARD: [Acesse Aqui!](https://drive.google.com/file/d/196o1V5688wwOP8-AWI6LGG38egaak6r2/view?usp=drive_link)

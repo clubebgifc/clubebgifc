@@ -8,7 +8,6 @@
 1. [SÓ UMA](#SÓ-UMA)
 2. [DIXIT](#DIXIT)
 3. [SET](#SET)
-4. [MAGIC MAZE](#MAGIC-MAZE)
 
 ## SÓ UMA
 ### INFORMAÇÕES
